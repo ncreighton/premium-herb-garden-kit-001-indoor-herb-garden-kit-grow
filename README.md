@@ -1,0 +1,2 @@
+# premium-herb-garden-kit-001-indoor-herb-garden-kit-grow
+Tired of kaleidoscopes of sticky notes and half-filled spreadsheets just to remember when your basil last drank? Your indoor herb garden deserves a studio—where every seed, light cycle, and harvest feels as thoughtful as your craft.  The Indoor Herb Garden Kit &amp; Grow Light Craft Studio turns your Notion workspace into a living, breathing command ce
